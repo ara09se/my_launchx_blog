@@ -9,13 +9,6 @@ menu:
 
 Hola, aquí vas a leer un poco sobre mi 🤩
 
-> Excidit gente, si orat suo quaeque dura Calydon nata? Pars auro post stetit
-> adfusique imis amplexus. Agmina per fabricator
-> mittere Erymanthon habetque tot.
+Soy una mujer que ama la creatividad, el diseño, arte  pero también la tecnología ,así que supe desde el principio que sería importante para mí en mi carrera esto empujó a centrarme en la programación Frontend como una forma creativa de expresarme. Creo en la progresión personal y dirijo con el ejemplo.
 
-**Cineres Nile ipsa** origine discurrunt adest Unde, et quem clausus, imo,
-virens quoque tales, potuit. Ingentes insilit corpore nutricis praebebat roganti
-licuit. Denique a vestros adulantum in bella lina parte et arte generi di igitur
-quis, digitis pedes. Cum resonant tamen, namque in anxia. Non nostri trahens
-ancora.
-
+Soy puntual, confiable y me comprometo a brindar un excelente trabajo todos los días. Mi objetivo siempre es proporcionar contenido de calidad que eduque, inspire y sea útil al mundo.
